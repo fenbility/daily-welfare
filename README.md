@@ -11,4 +11,8 @@
 
 加入我们吧，等你到来。
 
-群号236076846<a target="_blank" href="http://shang.qq.com/wpa/qunwpa?idkey=b08eaae79775dad8e5df7bbe8293acc5ee7f5bebefd319ed484777e38b8c6e37"><img border="0" src="http://pub.idqqimg.com/wpa/images/group.png" alt="FE吹水群" title="FE吹水群"></a>
+QQ群号：`236076846`  <a target="_blank" href="http://shang.qq.com/wpa/qunwpa?idkey=b08eaae79775dad8e5df7bbe8293acc5ee7f5bebefd319ed484777e38b8c6e37"><img border="0" src="http://pub.idqqimg.com/wpa/images/group.png" alt="FE吹水群" title="FE吹水群"></a>
+
+请在有网络的情况下扫描二维码加入QQ群！
+
+![扫描二维码加群](http://ww1.sinaimg.cn/bmiddle/69326123jw1euyruwbtjej20460460su.jpg)
